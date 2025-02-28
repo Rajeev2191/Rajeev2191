@@ -42,9 +42,9 @@
 ---
 
 ### **🌍 Connect with Me:**  
-[![YouTube](https://img.shields.io/badge/YouTube-THE%20GAMING%20CLINIC-FF0000?style=for-the-badge&logo=youtube&logoColor=white)](https://www.youtube.com/@Dr_Rajeev_live)  
-[![YouTube](https://img.shields.io/badge/YouTube-THE%20GAMING%20CLINIC-FF0000?style=for-the-badge&logo=youtube&logoColor=white)](https://www.youtube.com/@TheScriptBreaker)
-[![Instagram](https://img.shields.io/badge/Instagram-@rajeev..pvt.2191-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://www.instagram.com/rajeev..pvt.2191?igsh=djcwb2o5eTRzdGQ2)
+[![YouTube](https://img.shields.io/badge/YouTube-The%20Gaming%20Clinic-FF0000?style=for-the-badge&logo=youtube&logoColor=white)](https://www.youtube.com/@Dr_Rajeev_live)  
+[![YouTube](https://img.shields.io/badge/YouTube-Script%20Breaker-FF0000?style=for-the-badge&logo=youtube&logoColor=white)](https://www.youtube.com/@TheScriptBreaker)
+[![Instagram](https://img.shields.io/badge/Instagram-@_rajeev._.pvt.2191-E4405F?style=for-the-badge&logo=instagram&logoColor=white)]([https://www.instagram.com/_rajeev..pvt.2191?igsh=djcwb2o5eTRzdGQ2](https://www.instagram.com/rajeev..pvt.2191?igsh=djcwb2o5eTRzdGQ2))
 ---
 
 ### **⚡ Fun Fact:**  
